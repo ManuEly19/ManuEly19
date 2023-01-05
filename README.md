@@ -9,6 +9,6 @@ Here is some information about me:
 - 👯 Looking to collaborate in Start-up and technology companies.
 - 📫 How to contact me:
   - My phone number: +593 98 319 1978
-  - My email: manuelauqui@outlook.com
+  - My email: manuelauqui19@gmail.com
 - 😄 Pronouns: Manu 🖤
 - ⚡ Fun fact: I know how to play remove, I know how to assemble rubik's cubes and I like to learn.
